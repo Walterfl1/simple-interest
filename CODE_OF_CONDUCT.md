@@ -21,7 +21,7 @@ Cualquier violación podrá resultar en sanciones o expulsión del proyecto.
 
 ## 📧 Contacto
 Si observas un comportamiento inadecuado, puedes reportarlo a través de:
-**walter.flores@example.com**
+**walterfloress166@gmail.com**
 
 ---
 
